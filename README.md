@@ -28,7 +28,7 @@
 
 - Emin Ağayev İlqar ~ bilet 5
 
-- Vahid Abbasov Tariyel~ bilet 11
+- Vahid Abbasov Tariyel ~ bilet 11
 
 - Vasif Əliyev Yaşar ~ bilet 6
 
